@@ -1,6 +1,6 @@
 #  Good Music Listicle
 
-This is a listicle of actual **Good Music** so obviously no country music will be listed here. In reality this is just music that I like so I'm not entirely serious, but while these are my opinions they are objectively correct and not up for negotiation. They are listed in order from **greatest** to **least great** so just being on the list is an incredible honor. Unfortunately, due to time constraints, I will only be listing my favorite **alt rock** (alternative rock) music, but I also really enjoy **psychedelic** rock such as Jimi Hendrix, Cream, The Doors, Vanishing Twin, and Fleetwood Mac, who technically isn't psych rock but their music hypnotizes me, and **prog rock** (progressive rock which is music that ramps up over the course of the song) like the song White Rabbit by Jefferson Airplane or Dark Matter by Porquepine Trees.
+This is a listicle of actual **Good Music** so obviously no country music will be listed here. In reality this is just music that I like so I'm not entirely serious, but while these are my opinions they are objectively correct and not up for negotiation. They are listed in order from **greatest** to **least great** so just being on the list is an incredible honor. Unfortunately, due to time constraints, I will only be listing my favorite 5 **alt rock** (alternative rock) bands and their songs I like, but I also really enjoy **psychedelic** rock such as Jimi Hendrix, Cream, The Doors, Vanishing Twin, and Fleetwood Mac, who technically isn't psych rock but their music hypnotizes me, and **prog rock** (progressive rock which is music that ramps up over the course of the song) like the song White Rabbit by Jefferson Airplane or Dark Matter by Porquepine Trees. Plus many other alt rock bands and songs that don't make the top 5 like Sublime and Everclear.
 
 
 ##  Alt Rock
@@ -75,19 +75,18 @@ An incredibly overlooked band. Hardly anyone knows about this 90's alt rock elet
  	> 4. [*Weaken*](https://youtu.be/5SC5xHfuJkg?feature=shared)
  	> 5. [*23*](https://youtu.be/Lr7Zult49f8?feature=shared)
  	> 6. [*All Wrong*](https://youtu.be/xndraQ0FUjQ?feature=shared)
- 	> 7. [*
-7. Sublime
-8. Everclear
-9. Matchbox Twenty
-10. Alanis Morissette
-11. Sound Garden/Temple of the Dog
-12. No Doubt
-13. The Cardigans
-14. Portishead
-15. Nirvana
-16. The Cranberries
-17. Sister Machine Gun
-18. Blur
-19. Ace of Base
+ 	> 7. [*From Your Mouth*](https://youtu.be/2-bWdru43_M?feature=shared)
+	> 8. [*Fool*](https://youtu.be/rNmhdMdOkdM?feature=shared)
+ 	> 9. [*We Were Wrong*](https://youtu.be/5J3tDi0wL5A?feature=shared)
+	> 10. [*Don't Know How to Be*](https://youtu.be/LOPpSfnKTJU?feature=shared)
+	> 11. [*Behavior Modification*](https://youtu.be/QciZOK4zn58?list=RDQciZOK4zn58)
+ 	> 12. [*Rearrange*](https://youtu.be/kRQrF_4zKXA?feature=shared)
+ 	> 13. [*Still*](https://youtu.be/b4u7iDmqy9I?feature=shared)
+## Honorable Mentions
+6. [**Sublime**](https://music.apple.com/us/artist/sublime/63480)
+Incredibly styled rock with hip hop and hispanic influence. Their music captures this idea of coming to peace with doing something that is wrong beautifully in every piece
+7. [**Everclear**](https://music.apple.com/us/artist/everclear/549623)
+Very solid music with a bit of a western twang and a feeling of urban decay. Often writing songs about the psychological, emotional, and physical problems of poor or broken people.
+
 
 
